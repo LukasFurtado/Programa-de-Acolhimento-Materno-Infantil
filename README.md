@@ -11,7 +11,7 @@
 **Princípio.** Aqui prevalece o amor. Nenhuma vida é descartável e nenhuma mulher deve decidir sozinha, sem apoio. O programa não pune nem obriga: ele acolhe, sustenta e cria as condições para que o vínculo entre mãe e filho possa nascer e crescer livremente.
 
 **Mecanismo.**
-1. **Cooperação interestadual** — um pacto entre os Estados padroniza o programa, compartilha recursos, vagas e boas práticas, e garante que a mulher seja atendida em qualquer unidade da federação.
+1. **Cooperação interestadual (ou Nacional)** — um pacto entre os Estados padroniza o programa, compartilha recursos, vagas e boas práticas, e garante que a mulher seja atendida em qualquer unidade da federação.
 2. **Rede de creches** — vagas gratuitas e garantidas para os filhos das mães acolhidas, com prioridade absoluta.
 3. **Termo de adesão voluntário ("contrato social")** — a mulher que considerava o aborto pode aderir livremente ao programa como alternativa. Ao aderir, compromete-se com um cronograma de convívio e acompanhamento, e o Estado se compromete com apoio integral: creche, apoio financeiro, saúde, assistência psicológica e social.
 4. **Convívio que gera vínculo** — o programa prevê momentos regulares em que a mãe vê e acompanha o filho na creche, brincando e crescendo. É desse convívio livre — não da imposição — que nasce o desejo de ter o filho de volta para cuidar.
