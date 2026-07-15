@@ -19,7 +19,7 @@
 
 **Salvaguardas.** Participação voluntária; dignidade e autonomia da mulher preservadas; sigilo; apoio material e psicológico reais; nenhuma sanção pela decisão reprodutiva. O programa protege a criança amparando a mãe.
 
-**Síntese.** Salvar a criança amparando a mãe. Onde há apoio, o amor encontra caminho.
+**Síntese.** Salvar a criança amparando a mãe. Onde há apoio, o AMOR encontra o VERDADEIRO CAMINHO DA VIDA.
 
 ---
 
